@@ -1,4 +1,4 @@
-# 
+# Enhance GIMP for PC | GIMP for Windows with GIMP for PC | GIMP for Windows professional Plugin: batch-processing & photo-restoration, the #1 plugin. Includes batch-processing and
 
 
 
